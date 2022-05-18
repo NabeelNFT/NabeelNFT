@@ -4,6 +4,6 @@
 
 ### Blockchain Technology and Web 3.0
 
-### create NFTs.
+### I create NFTs.
 
-Let's get connected - https://linktr.ee/nabeelnft
+Let's get connected - **https://linktr.ee/nabeelnft**
