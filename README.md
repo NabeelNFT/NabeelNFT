@@ -6,4 +6,4 @@
 
 ### I create NFTs.
 
-### Let's get connected - linktr.ee/nabeelnft
+### Let's get connected - https://linktr.ee/nabeelnft
